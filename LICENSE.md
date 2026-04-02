@@ -1,4 +1,4 @@
-
+Free adv creatures of sonaria Scripts | auto-catch + inf-coins brings you the best free scripts for creatures of sonaria, featuring auto-catch and inf-coins. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
